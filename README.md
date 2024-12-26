@@ -1,1 +1,1 @@
-Официальная страница сайта "From Board Delivery".
+Официальная страница сайта "From Board Delivery" (Laptop LG 1536).
